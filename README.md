@@ -7,7 +7,8 @@ I spent Eight+ years in academia before that, half of it at the [Max Planck Inst
  
 I am also skeptical of productivity gurus, which is an uncomfortable position for [someone who writes publicly about her own note-taking system](https://cecibaldoni.github.io/blog/). I write about it anyway.
  
-I draw. Sketchnotes, workshop slides with more doodles than a slide strictly needs, and a handwriting that has got measurably worse since I started typing faster than I write (alas, I am also prone to typs). Most of what I make lands somewhere between **teaching** and **illustration**.
+I draw. 
+I also do Sketchnotes, and my handwriting that has got measurably worse since I started typing faster than I write (alas, I am also prone to typs). 
  
 **What's here**
  
